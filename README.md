@@ -22,3 +22,9 @@ Contact
 	•	Project Link: https://github.com/EniolaAdeogun/habit-tracker
 
 Happy Tracking!
+
+
+https://github.com/user-attachments/assets/6dde5940-b3e0-4a74-a4e8-06d39d507c3a
+
+
+
